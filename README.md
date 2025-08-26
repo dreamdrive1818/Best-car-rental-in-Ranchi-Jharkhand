@@ -2,15 +2,15 @@ Several companies provide this service, and one of the most trusted names is Dre
 
 With a self drive car rental in Ranchi, you get:
 
-🚗 Freedom to drive at your own pace
+ Freedom to drive at your own pace
 
-🕒 Flexible timings without depending on a driver
+ Flexible timings without depending on a driver
 
-💰 Cost-effective travel compared to multiple taxi rides
+ Cost-effective travel compared to multiple taxi rides
 
-👨‍👩‍👧‍👦 Spacious options like SUVs for families and groups
+ Spacious options like SUVs for families and groups
 
-💎 Premium cars for weddings or corporate events
+ Premium cars for weddings or corporate events
 
 👉 To book a car in Ranchi, you can visit dream-drive.co.in
  or call +91 (994) 202-7772 for quick Ranchi car booking.
